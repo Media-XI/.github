@@ -1,5 +1,5 @@
 # Media-XI
-https://instagram.com/media_xi?igshid=YmMyMTA2M2Y=
+https://instagram.com/media_xi
 <!--
 
 **Here are some ideas to get you started:**
